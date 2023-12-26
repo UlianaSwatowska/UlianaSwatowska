@@ -1,0 +1,7 @@
+- 👋 cześć,jestem Uliana z Gdańska 
+- nostanowilam że przyszedł  czas na zmiany w branży, 
+ i chce nauczyć się promowaniu i spróbować swoich sił
+- 🌱 
+- 💞️ 
+  
+
